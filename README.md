@@ -1,1 +1,1 @@
-# -_a-n_Socket_Ma-ng_ma-y_ti-nh-
+# Do_an_Socket_Mang_may_tinh
